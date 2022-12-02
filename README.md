@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Joy!
+- 👀 I’m interested in music, art, and books!
+- 🌱 I’m currently learning Italian(in school) & Chinese(personal)
